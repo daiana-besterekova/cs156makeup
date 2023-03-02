@@ -1,4 +1,5 @@
 **Pre class work**
+
 [In "Explore"](https://sle-collaboration.minervaproject.com/?id=e1633514-a30f-4b1c-b0d5-b0cf6c37ea49&userId=10860&name=Daiana+Besterekova&avatar=https%3A//s3.amazonaws.com/picasso.fixtures/Daiana_Besterekova_10860_2022-10-30T00%3A03%3A26.272Z&iframed=1&readOnly=0&isInstructor=0&enableSavingIndicators=1&signature=edd992c6ff1a3b073f297dc8edab1c5aaaf78bb404d6b52c1b0f97b438feef25#)
 
 
